@@ -2,7 +2,7 @@
 
 > **`Hepinize Merhaba Arkadaşlar Bu Videoda Yeni Hazırladığımız +70 Komutlu Eğlence Botunu Tanıttım,İyi Seyiler Diliyorum Tekrardan. Bu Tarz Videoların Devamı İçin Videoya Like ve Yorum Atmayı Unutmayın`**
 
-> [Videoya Gitmek İçin Tıkla](https://youtu.be/WDrxhZ7fH8o) 
+> [Videoya Gitmek İçin Tıkla](https://youtu.be/m5T1icEOd78) 
 
 > [Discord Sunucusuna Katılmak İçin Tıkla](https://discord.gg/axjXvA9cCa)
 
